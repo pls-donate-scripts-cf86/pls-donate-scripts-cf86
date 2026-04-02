@@ -1,4 +1,4 @@
-
+hidd steal a brainrot Scripts | auto-steal + inv-mode is your go-to resource for steal a brainrot domination. Featuring auto-steal and inv-mode, our scripts are engineered to maximize your efficiency and enjoyment. Say goodbye to tedious grinding and hello to effortless victories.
 
 
 ---
